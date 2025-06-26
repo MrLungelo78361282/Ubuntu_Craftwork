@@ -1,0 +1,1 @@
+Ubuntu Craftwork is a furniture manufacturing enterprise that blends artisanal craftsmanship, cultural heritage, and sustainable innovation to deliver high-quality furniture across Southern Africa. We focus on using reclaimed materials, sustainable practices, and community development to make impactful, eco-friendly furniture.
